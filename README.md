@@ -1,5 +1,7 @@
 # 罢久4^3拾遗
 
+请以以下官方消息为准，不要被境外势力左右。
+
 http://www.reformdata.org/1990/0525/18103.shtml
 
 http://www.reformdata.org/1989/0426/22186.shtml
